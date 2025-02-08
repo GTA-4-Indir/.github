@@ -1,6 +1,8 @@
 # GTA 4 Ücretsiz İndir  
 
-Grand Theft Auto IV (GTA 4)’ü ücretsiz indirmenin en iyi yerine hoş geldiniz! Eğer Liberty City’nin hareketli sokaklarına dalmaya ve oyun dünyasının en ikonik aksiyon-macera oyunlarından birini deneyimlemeye hazırsanız, doğru yerdesiniz. 
+Grand Theft Auto IV (GTA 4)’ü ücretsiz indirmenin en iyi yerine hoş geldiniz! Eğer Liberty City’nin hareketli sokaklarına dalmaya ve oyun dünyasının en ikonik aksiyon-macera oyunlarından birini deneyimlemeye hazırsanız, doğru yerdesiniz.
+
+![GTA 4 indir](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhX5EuUbDQL5dH1-fSofsKTKxrRN6j1rIZTbwMzykv_4L3TjjYdvxpzGj2SVxL3QJISS24m2Li5uLHpWFup53_LrQGbFuXBvBFtsyLO59tm816RYENaek9wx8IeF22t4dtZ4FHT9OxO6SeeKegum6LxMU0c7anRnyJYSS6b1ivpw1YfBGkdSfCz40Buqic/s460/header.jpg)
 
 **[Buraya Tıklayarak İndirin](https://gofile.io/d/ZDY6Qv)**
 
